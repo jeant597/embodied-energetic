@@ -1,0 +1,1 @@
+This isn't healing—it’s a return. In this powerful article, Jean Tindle invites women to reclaim the embodiment they were taught to abandon. Discover why a woman who doesn’t live in her body can’t command her life—and why sovereignty begins in the bones, not the branding.
